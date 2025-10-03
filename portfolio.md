@@ -50,4 +50,4 @@ Feel free to reach out if you’d like to collaborate or discuss projects:
 
 * GitHub: [ClzNick]
 * Discord: [ClzNick]
-* Roblox: [[your profile link](https://www.roblox.com/pt/users/8842734491/profile)]
+* Roblox: [[ClzNickz](https://www.roblox.com/pt/users/8842734491/profile)]
